@@ -8,6 +8,3 @@
 <br>
 <br>
 <br>
-[PAGE BELONGING TO: MICHAELA YE HYANG]
-<br>
-[made by a girl who can't help the monospace poetics]
