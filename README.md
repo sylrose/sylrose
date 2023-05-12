@@ -1,2 +1,7 @@
 `` RED VARIATIONS OF THE LIVING ``
-`` Moving toward and away from each other as the red ghost in the sky opened, called us gone, showed us the door to another world. Otherwise, the dark, and our mouths, tearing at what bones we found, grinning and hungry for something - something we couldn't, with all our words, name ``
+<br>
+`` The sculpture we’ve been making all my life, the one your hands lay on. I have been working. You have been sleeping. Sleep is an animal that we let go; made the soft surface of my body tired, far away, a lovely dance with the goddess, the fragile distance. ``
+<br>
+`` The distance I take for you now is considered. I love, love, love the broken bones in my body. Demonstrate, now, the temporal mechanic called hate — I can’t be expected to bail you out, anymore. I loved with shame, and you killed the shame, so I love endlessly. You never did, so I do it for you. ``
+<br>
+`` PAGE BELONGING TO: MICHAELA YE HYANG ``
