@@ -6,7 +6,6 @@
 <br>
  The distance I take for you now is considered. I love, love, love the broken bones in my body. Demonstrate, now, the temporal mechanic called hate — I can’t be expected to bail you out, anymore. I loved with shame, and you killed the shame, so I love endlessly. You never did, so I do it for you.
  <br>
-*(I possess myself, I hold myself like a broken animal, weary from the road)*
 <br>
 <br>
 ♥︎ M. YHY
